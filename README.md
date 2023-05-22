@@ -2,7 +2,7 @@
 ![](https://needspec.ru/foto/specialisty/repetitory/msk/gubanova-anna-evgenevna/gubanova-anna-evgenevna_120x160.jpg)
 ## Education
 * Skolkovo Institute of Science and Technology (2018 - 2022)
-* Moscow Institute of Ohysics and Technology (2012 - 2018)
+* Moscow Institute of Physics and Technology (2012 - 2018)
 
 ## Work experience:
 * System Analyst, Энергосбыт+ (2022 - present)
