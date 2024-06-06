@@ -16,4 +16,4 @@ _Some facts about me_:
 2. Open-minded, eagure to study new things
 3. Like snowboarding and playing chess
 
-_Contacts_: +79161214934, gubanova.93@mail.ru
+_Contacts_: gannaru56@gmail.com
